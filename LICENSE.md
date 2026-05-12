@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with rare Polymarket Plugin | automated-trade-execution + leverage-trading, the #1 plugin. Includes automated-trade-execution and leverage-trading
 
 
 
